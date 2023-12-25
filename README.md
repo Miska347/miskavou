@@ -1,5 +1,5 @@
 ### Hi there 👋
-##Contact me:
+Contact me:
 - Discord: miska347
 
 <!--
