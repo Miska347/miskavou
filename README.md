@@ -1,4 +1,4 @@
-### Contact me:
+### Hi there 👋
 - Discord: miska347
 
 <!--
